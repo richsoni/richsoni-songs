@@ -1,0 +1,11 @@
+#! /usr/bin/env ruby
+
+dotted = /^-+$/
+raw = File.read('./songs/wander-with-me.md')
+
+frontMatterEnd = raw.
+  split("\n").
+  index {|l| l.match(dotted)}
+
+frontMatter = raw.
+  split("\n")[0...frontMatterEnd]

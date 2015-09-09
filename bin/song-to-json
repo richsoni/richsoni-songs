@@ -1,0 +1,41 @@
+#! /usr/bin/env node
+var fs   = require('fs')
+var path = require("path")
+
+var fm   = require('front-matter')
+
+if(process.argv.length < 3){
+  console.error('USAGE: front-matter {files}')
+  process.exit(1)
+}
+
+function songify(str){
+  return str
+    .split('\n\n')
+    .map(function(stanza){
+      return stanza
+        .split('\n')
+        .filter(function(line) {
+          return line !== ""
+        })
+    })
+}
+
+var json = process.argv
+  .splice(2)
+  .map(function(file){
+    var data = fs.readFileSync(file, 'utf8')
+    return [path.basename(file, '.md'), fm(data)]
+  })
+  .map(function(cons){
+    return [cons[0], cons[1].attributes, songify(cons[1].body)]
+  })
+  .reduce(function(memo, item){
+    memo[item[0]] = {
+      attributes: item[1],
+      body:       item[2]
+    }
+    return memo
+  }, {})
+
+console.log(JSON.stringify(json))
