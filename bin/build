@@ -1,11 +1,3 @@
-#! /usr/bin/env ruby
+#! /usr/bin/env bash
 
-dotted = /^-+$/
-raw = File.read('./songs/wander-with-me.md')
-
-frontMatterEnd = raw.
-  split("\n").
-  index {|l| l.match(dotted)}
-
-frontMatter = raw.
-  split("\n")[0...frontMatterEnd]
+./bin/song-to-json songs/*.md > _data.json
