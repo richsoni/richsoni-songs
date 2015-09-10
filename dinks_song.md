@@ -1,3 +1,7 @@
+---
+title: Dinks Song
+---
+
 once I had wings like Noah's dove
 i flew up the river looked for a love
 

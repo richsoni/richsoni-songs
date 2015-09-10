@@ -1,3 +1,7 @@
+---
+title: Dont Cry
+---
+
 dont cry
 dont cry
 

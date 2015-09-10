@@ -1,3 +1,8 @@
+---
+title: Wander With Me
+soundcloud: soundcloud.com/richsoni/wander-with-me
+---
+
 g      am       c           g
 i cant tell you where where going
 g      c         d        g

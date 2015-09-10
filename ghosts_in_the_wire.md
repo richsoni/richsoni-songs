@@ -1,3 +1,7 @@
+---
+title: Ghost In The Wire
+---
+
 well theres ghosts in the wire, ma. listeneng when I speak
 oh, theres ghosts in the wire, ma. listenen when I do speak
 it feels like a snitch

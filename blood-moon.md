@@ -1,3 +1,7 @@
+---
+title: Since The Last Blood Moon
+---
+
 got your mojo bag
 with a rabbits foot
 rattle snack rattle

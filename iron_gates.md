@@ -1,3 +1,7 @@
+---
+title: Iron Gates
+---
+
               G
 from the iron gates
           C

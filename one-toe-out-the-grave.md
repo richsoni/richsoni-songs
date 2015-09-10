@@ -1,3 +1,7 @@
+---
+title: One Toe Out The Grave
+---
+
 hard aint nothin mama
 when you done what i done
 see i sold my heart, just to keep my gun

@@ -1,3 +1,7 @@
+---
+title: Sarah Ruth
+---
+
 sarah ruth, you snap those beans ill snap yo bone
 sarah ruth, man id be better off alone
 i smell like burbon, well you smell like sermon

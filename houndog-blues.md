@@ -1,3 +1,7 @@
+---
+title: Hound Dog Blues
+---
+
 ive got a hound that hasnt howled for a second in her life
 ive got a hound that hasnt howled for a second in her life
 so, i took her to the doctor, to make sure everything is alright

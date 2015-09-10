@@ -1,3 +1,7 @@
+---
+title: Hints Are Not Half Hearted
+---
+
 c#m                         g#
 well, i think ill call you late march snow
 f#m                       e

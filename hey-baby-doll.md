@@ -1,3 +1,7 @@
+---
+title: Hey Baby Doll
+---
+
 c b(am) am f fm c g
 
 hey baby doll, how you livin

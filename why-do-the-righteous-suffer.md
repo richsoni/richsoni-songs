@@ -1,3 +1,7 @@
+---
+title: Why Do The Righteous Suffer
+---
+
 lookie here friend
 lookie here foe
 lickie your pen

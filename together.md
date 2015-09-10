@@ -1,3 +1,7 @@
+---
+title: Together
+---
+
 Oh my baby, I love her so
 we go down, to the jersey shore
 well get coffee, in the morning and bagels too

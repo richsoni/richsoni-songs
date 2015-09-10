@@ -1,3 +1,7 @@
+---
+title: Hocus Focus
+---
+
 em                g              c    g
 when she puts her hocus focus on me
 bm     c           g

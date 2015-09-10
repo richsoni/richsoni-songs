@@ -1,3 +1,7 @@
+---
+title: Born To Live
+---
+
 some people was born, to workin every day
 others are there to take the workers pain away
 They could tell a good joke, or sing a good song

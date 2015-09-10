@@ -1,3 +1,7 @@
+---
+title: Little Seaside Home
+---
+
 'When I bought that house and ship, I was young and full of zip,'
 'I left my parents, and my friends in old bayonne.'
 'and so I made the race, and i stacked me out a place'
