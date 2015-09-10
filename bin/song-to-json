@@ -2,24 +2,15 @@
 var fs   = require('fs')
 var path = require("path")
 
-var fm   = require('front-matter')
+var fm         = require('front-matter')
+var Remarkable = require('remarkable')
 
 if(process.argv.length < 3){
   console.error('USAGE: front-matter {files}')
   process.exit(1)
 }
 
-function songify(str){
-  return str
-    .split('\n\n')
-    .map(function(stanza){
-      return stanza
-        .split('\n')
-        .filter(function(line) {
-          return line !== ""
-        })
-    })
-}
+md = new Remarkable({})
 
 var json = process.argv
   .splice(2)
@@ -28,13 +19,12 @@ var json = process.argv
     return [path.basename(file, '.md'), fm(data)]
   })
   .map(function(cons){
-    return [cons[0], cons[1].attributes, songify(cons[1].body)]
+    var post      = cons[1]
+    post.body = md.render(post.body)
+    return [cons[0], post]
   })
   .reduce(function(memo, item){
-    memo[item[0]] = {
-      attributes: item[1],
-      body:       item[2]
-    }
+    memo[item[0]] = item[1]
     return memo
   }, {})
 
