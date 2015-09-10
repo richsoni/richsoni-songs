@@ -1,11 +1,10 @@
----
-title:  Wander With Me
-soundcloud: soundcloud.com/richsoni/wander-with-me
----
-
+g      am       c           g
 i cant tell you where where going
+g      c         d        g
 i cant say where well end up
+g      am       c           g
 like doves in the wind a blowin
+g      c         d        g
 searching for a place to slump
 
 but if its true life has a meaning
@@ -13,9 +12,13 @@ locked in a safe by eternity
 understand theres no machining
 that can replace the swallowed key
 
+c                          g  f#
 my advise is to stop searching
+c                          g  am
 and to come wander with me
+c            g  f#   e
 our paths our surly merging
+c              d
 so come wander with me
 
 babe the big and yazoo river
@@ -42,3 +45,4 @@ my advise is to stop searching
 and to come wander with me
 our paths our surly merging
 so come wander with me
+

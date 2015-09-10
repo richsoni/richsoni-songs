@@ -1,3 +1,0 @@
-#! /usr/bin/env bash
-
-./bin/song-to-json songs/*.md > _data.json
