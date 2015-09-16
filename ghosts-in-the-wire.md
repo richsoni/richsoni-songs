@@ -2,42 +2,44 @@
 title: Ghost In The Wire
 ---
 
-well theres ghosts in the wire, ma. listeneng when I speak  
-oh, theres ghosts in the wire, ma. listenen when I do speak  
-it feels like a snitch  
-a coward or a freak  
+Well theres ghosts in the wire, ma  
+listening when I speak  
+Oh, theres ghosts in the wire, ma  
+listening when I do speak  
+It feels like a snitch  
+A coward or a freak  
 
-theres a sound neath my bed, ma  
+Theres a sound neath my bed, ma  
 I feel like I cant get down  
-oh theres a sound neath my bed, ma  
-I dont want to try to get down  
+Oh theres a sound neath my bed, ma  
+I don't want to try to get down  
 Get this monster out of my room  
-I dont want him around  
+I don't want him around  
 
-well theres eyes in my window, ma  
-watching while I sleep  
-oh, theres eyes in the window, ma  
-watching while I sleep  
-well it might be osiris   
-judging all my sheep  
+Well theres eyes in my window, ma  
+Watching while I sleep  
+Oh, theres eyes in the window, ma  
+Watching while I sleep  
+Well it might be Osiris   
+Judging all my sheep  
 
-theres a ghoul in the closet, ma  
-looking to find some bones  
-oh, theres a ghoul in the closet, ma  
-trying to score some bones  
-well, there aint no bones round here  
-but, if there was they should levem alone  
+Theres a ghoul in the closet, ma  
+Looking to find some bones  
+Oh, theres a ghoul in the closet, ma  
+Trying to score some bones  
+Well, there aint no bones round here  
+But, if there was they should leave em' alone  
 
-theres movement in my curtain, ma  
-and, tonight there aint no wind  
-my curtain is a movin, ma  
-and, tonight theres not single gust of wind  
+Theres movement in my curtain, ma  
+And, tonight there aint no wind  
+My curtain is a movin', ma  
+And, tonight theres not single gust of wind  
 I pray it aint a vampire  
-tryin to get me pinned  
+Tryin' to get me pinned  
 
-theres a witch in the tree, ma  
-laughing when I cry  
-oh theres a witch in the tree, ma  
-she laughs each time I cry  
-when I ask her whats so funny,  
-she looks back real sly and says stop bein shy  
+Theres a witch in the tree, ma  
+Laughing when I cry  
+Oh theres a witch in the tree, ma  
+She laughs each time I cry  
+When I ask her whats so funny,  
+She looks back real sly and says stop bein' shy  

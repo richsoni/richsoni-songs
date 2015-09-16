@@ -2,11 +2,11 @@
 title: Dinks Song
 ---
 
-once I had wings like Noah's dove  
-i flew up the river looked for a love  
+Once I had wings like Noah's dove  
+I flew up the river looked for a love  
 
-when I found her, so hard I falled  
-my soul it sank, like a cannon ball  
+When I found her, so hard I falled  
+My soul it sank, like a cannon ball  
 
 Fare thee well, oh honey, fare thee well  
 
@@ -21,15 +21,15 @@ Fare thee well, oh honey, fare thee well
 Once my baby, she loved me so  
 Couldn't keep her from my do'  
 
-boys, now alone at night I lie  
-Scarcely ever see her, nomat how hard i try  
+Boys, now alone at night I lie  
+Scarcely ever see her, no matter how hard I try  
 
 Fare thee well, oh honey, fare thee well  
 
-i lost my heart, to a steel cold gal  
-she wanted to ramble, so she shalled  
+I lost my heart, to a steel cold gal  
+She wanted to ramble, so she shalled  
 
-she took a keepsake, to spark her memory  
-and theres a hole, where my heart should be  
+She took a keepsake, to spark her memory  
+And theres a hole, where my heart should be  
 
 Fare thee well, oh honey, fare thee well  

@@ -1,41 +1,41 @@
 ---
-title: Tumblin Rock
+title: Tumblin' Rock
 ---
 
-when the limelite is shining  
-while the king of clubs is dining  
-at the 5 star joint, and the shift lead has appointed  
-you who has no clue how to do a waiters job  
-you trip over your shoe and spill the glue colored stew  
-and the kings cold black eyes stare right through your taboo  
-but dont you feel blue, jack  
+When the lime lite is shining  
+While the king of clubs is dining  
+At the 5 star joint, and the shift lead has appointed  
+You who has no clue how to do a waiters job  
+You trip over your shoe and spill the glue colored stew  
+And the kings cold black eyes stare right through your taboo  
+But don't you feel blue, jack  
 
-everybody has had a ball that they fumbled  
-everybodys been a rock on the tumble  
-so, next time you see somebody walkin take a stumble  
-just try to be humble  
-we all see trouble  
+Everybody has had a ball that they fumbled  
+Everybodys been a rock on the tumble  
+So, next time you see somebody walkin' take a stumble  
+Just try to be humble  
+We all see trouble  
 
-when tweedle dee begins to hum a drum beat  
-he taps his feet, and the side of his seat with the meat of his thumb  
-and as he goes numb the gum shoots from  
-his rum gullett onto the back of your mullet  
-but neither your nor him should feel dumb  
-when your at your interview you notice and feel like a bum  
+When tweedle dee begins to hum a drum beat  
+He taps his feet, and the side of his seat with the meat of his thumb  
+And as he goes numb the gum shoots from  
+His rum gullet onto the back of your mullet  
+But neither your nor him should feel dumb  
+When your at your interview you notice and feel like a bum  
 
-everybody has had a ball that they fumbled  
-everybodys been a rock on the tumble  
-so, next time you see somebody walkin take a stumble  
-just try to be humble  
-we all see trouble  
+Everybody has had a ball that they fumbled  
+Everybodys been a rock on the tumble  
+So, next time you see somebody walkin' take a stumble  
+Just try to be humble  
+We all see trouble  
 
-when that lonesome whistle sounds and the train is leaving town  
-and you start to make a frown because on a whim you left tiny tim  
-back at the station dont worry jim  
-yuo where just hurryin  
+When that lonesome whistle sounds and the train is leaving town  
+And you start to make a frown because on a whim you left Tiny Tim  
+Back at the station don't worry Jim  
+You where just hurryin'  
 
-everybody has had a ball that they fumbled  
-everybodys been a rock on the tumble  
-so, next time you see somebody walkin take a stumble  
-just try to be humble  
-we all see trouble  
+Everybody has had a ball that they fumbled  
+Everybodys been a rock on the tumble  
+So, next time you see somebody walkin' take a stumble  
+Just try to be humble  
+We all see trouble  

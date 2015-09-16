@@ -3,25 +3,25 @@ title: Strawberry Jam
 ---
 
 Strawberry jam in my bed  
-smeared upon a slice of wonder bread  
+Smeared upon a slice of wonder bread  
 
-wonder i neednt as I wean it toward my head  
-of the allure it has when its spread  
+Wonder i needn't as I wean it toward my head  
+Of the allure it has when its spread  
 
-Strawberry jam when im squealing bored  
-just a little lick and im feeling cured  
+Strawberry jam when I'm squealing bored  
+Just a little lick and I'm feeling cured  
 
-not a thing is like the tart and sweet taste  
-both when its bare or when its laced  
+Not a thing is like the tart and sweet taste  
+Both when its bare or when its laced  
 
 Strawberry jam upon my lips  
-i scoop it with my fingertips  
+I scoop it with my fingertips  
 
 Like a honey sucklin' bear  
-i can smell its fragrance in the air  
+I can smell its fragrance in the air  
 
-so i heard she wants to hang with me  
-come with that jam by the snoozin tree  
+So i heard she wants to hang with me  
+Come with that jam by the snoozin' tree  
 
-hey girl did you hear about what I like  
-feed me some jam and you can ride my bike  
+Hey girl did you hear about what I like  
+Feed me some jam and you can ride my bike  

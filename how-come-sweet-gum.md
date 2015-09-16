@@ -2,27 +2,27 @@
 title: How Come Sweet Gum
 ---
 
-how come you dont get along with me  
-how come you dont get along with me  
-you dont even show a trace, of geniality  
-how come you dont get along with me  
+How come you don't get along with me  
+How come you don't get along with me  
+You don't even show a trace, of geniality  
+How come you don't get along with me  
 
-how come you try to make me cry  
-how come you try to make me cry  
-you work on my face until breaking my eye  
-how come you try to make me cry  
+How come you try to make me cry  
+How come you try to make me cry  
+You work on my face until breaking my eye  
+How come you try to make me cry  
 
-how come you never say hello  
-how come you never say hello  
-you always race right past my window  
-how come you never say hello  
+How come you never say hello  
+How come you never say hello  
+You always race right past my window  
+How come you never say hello  
 
-how come you always acting smug  
-how come you always acting smug  
-your the opposite of grace, i have never seen you shrug  
-how come you always acting smug  
+How come you always acting smug  
+How come you always acting smug  
+Your the opposite of grace, I have never seen you shrug  
+How come you always acting smug  
 
-how come you make my wanna punch yo lip  
-how come you make my wanna punch yo lip  
-ill whack you with a mace, ill give your shirt a rip  
-how come you make my want to punch your lip  
+How come you make my wanna punch yo lip  
+How come you make my wanna punch yo lip  
+Ill whack you with a mace, ill give your shirt a rip  
+How come you make my want to punch your lip  

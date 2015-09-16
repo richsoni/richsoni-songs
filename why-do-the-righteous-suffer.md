@@ -2,77 +2,77 @@
 title: Why Do The Righteous Suffer
 ---
 
-lookie here friend  
-lookie here foe  
-lickie your pen  
-take down some notes  
+Lookie here friend  
+Lookie here foe  
+Lickie your pen  
+Take down some notes  
 
-take a look at the snow globe  
-take a look right inside  
-take a look at this noble man  
-take a look at pious mcbride  
+Take a look at the snow globe  
+Take a look right inside  
+Take a look at this noble man  
+Take a look at pious McBride  
 
-he loves each of his daughters  
-he loves each equally  
-he loves every man as his brother  
-he loves for eternity  
+He loves each of his daughters  
+He loves each equally  
+He loves every man as his brother  
+He loves for eternity  
 
-when it comes down to gossip  
-he has always abstained  
-he finds it way to forgive  
-those that play the neighborhood game  
+When it comes down to gossip  
+He has always abstained  
+He finds it way to forgive  
+Those that play the neighborhood game  
 
-he should be used as a template  
-he should be used as a mold  
-every man would be great  
-if they acted like him till their old  
+He should be used as a template  
+He should be used as a mold  
+Every man would be great  
+If they acted like him till their old  
 
-I can see what your sayin  
+I can see what your sayin'  
 I can see it with my eye  
-I can also see that you playin a shallow game  
-my eternal wise guy  
+I can also see that you playin' a shallow game  
+My eternal wise guy  
 
-theres a crack in your thesis  
-theres a crack there you see  
-ol' pios mcbride has never been  
-stress tested for misery  
+Theres a crack in your thesis  
+Theres a crack there you see  
+Ol' pios McBride has never been  
+Stress tested for misery  
 
-if you put him on the treadmill  
-if you push him to the edge  
-if you push him to double nickels  
-i think youll find that hes no longer your friend  
+If you put him on the treadmill  
+If you push him to the edge  
+If you push him to double nickels  
+I think you'll find that hes no longer your friend  
 
-if you kill all his daughters  
-if burn one two three  
-he will wish he could slaugter  
-you and bury you under that snoozin tree  
+If you kill all his daughters  
+If burn one two three  
+He will wish he could slaughter  
+You and bury you under that snoozin' tree  
 
-why do the righteous suffer  
-why do the righteous burn  
-well, whats the difference  
-between them and the damned once you give their crank a turn  
+Why do the righteous suffer  
+Why do the righteous burn  
+Well, whats the difference  
+Between them and the damned once you give their crank a turn  
 
-so, my dear listner  
-next time you face pain  
-next time your lost on eastertime  
-in juarez in the rain  
+So, my dear listener  
+Next time you face pain  
+Next time your lost on Easter time  
+In Juarez in the rain  
 
-remember this story  
-remember this song  
-remember which side you want to be right  
-and which one to be wrong  
+Remember this story  
+Remember this song  
+Remember which side you want to be right  
+And which one to be wrong  
 
-we are given our freedom  
-we are given our trust  
-but perhaps it wont be us  
-who is judged when we turn into dust  
+We are given our freedom  
+We are given our trust  
+But perhaps it wont be us  
+Who is judged when we turn into dust  
 
-it could be the ideas  
-it could be the speakers above  
-remember that when your choosing to act  
-out of vengeance or out of love  
+It could be the ideas  
+It could be the speakers above  
+Remember that when your choosing to act  
+Out of vengeance or out of love  
 
-for we cant see the big picture  
-we cant see out of the globe  
-we cant see past the seam  
-of the universes starry robe  
+For we cant see the big picture  
+We cant see out of the globe  
+We cant see past the seam  
+Of the universes starry robe  

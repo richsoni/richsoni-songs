@@ -2,38 +2,38 @@
 title: Please Stand By
 ---
 
-i made my way down to the love station  
-got myself a ticket to ride  
-but i was met with procrastination  
-when the announcer came on the line  
+I made my way down to the love station  
+Got myself a ticket to ride  
+But i was met with procrastination  
+When the announcer came on the line  
 
-please standby  
-please standby  
-well i aint gonna lie  
-theres a delay so please standby  
+Please standby  
+Please standby  
+Well i aint gonna lie  
+Theres a delay so please standby  
 
-i asked whats the cause of the delay honey  
-is the engine broke in need of repair  
-can i assist in any way sugar  
-do you need me to stick my wrench in there  
-all she said was...  
+I asked whats the cause of the delay honey  
+Is the engine broke in need of repair  
+Can i assist in any way sugar  
+Do you need me to stick my wrench in there  
+All she said was...  
 
-please standby  
-please standby  
-well i aint gonna lie  
-theres a delay so please standby  
+Please standby  
+Please standby  
+Well i aint gonna lie  
+Theres a delay so please standby  
 
-she said this route only has one lane and theres another train stuck on the track  
-i said i feel her pain, i dont mean to complain but when will it be back  
-she said i dont know i cant lie  
-the priorities are high  
-i really will try  
-then i gave her a sigh  
-as she looked in my eye  
-and said until then please stand by  
+She said this route only has one lane and theres another train stuck on the track  
+I said i feel her pain, i don't mean to complain but when will it be back  
+She said i don't know i cant lie  
+The priorities are high  
+I really will try  
+Then i gave her a sigh  
+As she looked in my eye  
+And said until then please stand by  
 
-please standby  
-please standby  
-well i aint gonna lie  
-theres a delay so please standby  
+Please standby  
+Please standby  
+Well i aint gonna lie  
+Theres a delay so please standby  
 

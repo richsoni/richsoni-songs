@@ -2,41 +2,39 @@
 title: Out Cold
 ---
 
-Aint it just like my mind, to play tricks everytime  
-it thinks it will hear something offending  
+Aint it just like my mind, to play tricks every time  
+It thinks it will hear something offending  
 
-well, I try to exist, but clenched theres a fist  
-holding onto my sanity, sending  
+Well, I try to exist, but clenched theres a fist  
+Holding onto my sanity, sending  
 
-me into a fog, so search for a log  
-in which I can sit, and begin transcending  
+Me into a fog, so search for a log  
+In which I can sit, and begin transcending  
 
-this feeling I get, when my palms get all wet  
-and the sun in my eyes it starts bending  
+This feeling I get, when my palms get all wet  
+And the sun in my eyes it starts bending  
 
-to black from white, and then its the night  
-and panic begins his great ending  
+To black from white, and then its the night  
+And panic begins his great ending  
 
-
-and......... and then......and then..............  
-
-Im out cold  
+And......... and then......and then..............  
+I'm out cold  
 
 
-well,  I think Im asleep, I dont know theres a heap  
-of strangers bent over me lending  
+Well,  I think I'm asleep, I don't know theres a heap  
+Of strangers bent over me lending  
 
-their nervous hands, and everything sans  
-my sanity is gathered round spending  
+Their nervous hands, and everything sans  
+My sanity is gathered round spending  
 
-all that it can, to help this poor man  
-whose conscious is there but its pending  
+All that it can, to help this poor man  
+Whose conscious is there but its pending  
 
-and, then I realize that my eyes disguise  
-rainbows are lies my mind is pretending!!!!  
+And, then I realize that my eyes disguise  
+Rainbows are lies my mind is pretending!!!!  
 
 I start to come to, a conclusion or two  
-about this circus I am now attending  
+About this circus I am now attending  
 
 
 I......... I guess......I guess..............  
@@ -45,23 +43,23 @@ I......... I guess......I guess..............
 I was out...cold  
 
 
-and now every time,  I try to be fine  
-but, I feel like my blood is descending  
+And now every time,  I try to be fine  
+But, I feel like my blood is descending  
 
-down to the ground, and then I am drowned   
-with fear while panic's extending  
+Down to the ground, and then I am drowned   
+With fear while panic's extending  
 
-a shivering finger, to poke madness that lingers  
-and my thoughts all begin to start blending  
+A shivering finger, to poke madness that lingers  
+And my thoughts all begin to start blending  
 
-and all I hear is mush, and I want to to hush  
-and my brain it starts recommending  
+And all I hear is mush, and I want to to hush  
+And my brain it starts recommending  
 
-some time out of mind, and my teeth start to grind   
+Some time out of mind, and my teeth start to grind   
 I try to breathe, i gnaw at my sleeve  
-as my last fighting morsel is fending my tending  
+As my last fighting morsel is fending my tending  
 
 
-to......... to go......to go..............  
+To......... to go......to go..............  
 
-out cold  
+Out cold  

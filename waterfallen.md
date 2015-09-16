@@ -2,52 +2,52 @@
 title: Waterfallen
 ---
 
-well, I fell into a river  
+Well, I fell into a river  
 I slipped into a stream  
-my face began to shiver  
-it was cold I had to scream  
+My face began to shiver  
+It was cold I had to scream  
 
-baby screeching to help me out  
-shes reaching for my shoulder  
-but in me theres not a doubt  
-that ill pull her off that boulder  
+Baby screeching to help me out  
+Shes reaching for my shoulder  
+But in me theres not a doubt  
+That ill pull her off that boulder  
 
 I claw at leaves dirt and clovers  
-im sure my time has come to me  
-but paws, sleaves fill, spurting over  
-then i see the tree  
+I'm sure my time has come to me  
+But paws, sleeves fill, spurting over  
+Then i see the tree  
 
-well, I fell into a river  
+Well, I fell into a river  
 I slipped into a stream  
-up the shaley cliff i slither  
-crawling up a cedar beam  
+Up the shale cliff i slither  
+Crawling up a cedar beam  
 
-my jacket and my rucksack  
-my blue jeans and my boots  
-are soaked with mossy plaque  
-and nodding beggertick roots  
+My jacket and my rucksack  
+My blue jeans and my boots  
+Are soaked with mossy plaque  
+And nodding beggar tick roots  
 
-everything had to come off  
-or I would get bronchitis or the flu  
-i didnt want to get a cough  
-plus my fingers where turning blue  
+Everything had to come off  
+Or I would get bronchitis or the flu  
+I didn't want to get a cough  
+Plus my fingers where turning blue  
 
-well, I fell into a river  
+Well, I fell into a river  
 I slipped into a stream  
-cutting jeans off with a scissor  
-testing self esteem  
+Cutting jeans off with a scissor  
+Testing self esteem  
 
-everything in my posession  
-soaked in this whole charade  
-i lost it all to a lesson  
-for a view of a cascade  
+Everything in my possession  
+Soaked in this whole charade  
+I lost it all to a lesson  
+For a view of a cascade  
 
-all the signs where clearly shown  
-right before my ignorant eyes  
-i heeded none, and to atone  
-i lost all my supplies  
+All the signs where clearly shown  
+Right before my ignorant eyes  
+I heeded none, and to atone  
+I lost all my supplies  
 
-well, I fell into a river  
+Well, I fell into a river  
 I slipped into a stream  
 I fell into a river  
-it all seemed like a dream  
+It all seemed like a dream  

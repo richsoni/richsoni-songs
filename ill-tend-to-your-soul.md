@@ -2,43 +2,43 @@
 title: Ill Tend To Your Soul
 ---
 
-when your clock it stops a-tickin  
-and its time for you to go  
-when your clock it stops a-tickin  
-brother i want you to know  
+When your clock it stops a-tickin''  
+And its time for you to go  
+When your clock it stops a-tickin'  
+Brother I want you to know  
 
-if a crow is at your winder  
-ill be sittin by your bed  
-forget that crow upon yer winder  
-focus on my singin instead  
+If a crow is at your window  
+Ill be sittin' by your bed  
+Forget that crow upon your window  
+Focus on my singing instead  
 
-dont you worry about nobody  
-ill keep everything in control  
-while there tending to your body  
-ill tend to your soul  
+Don't you worry about nobody  
+Ill keep everything in control  
+While there tending to your body  
+Ill tend to your soul  
 
-when your days are getting numbered  
-when your weary to yer toe  
-when your days are getting numbered  
-brother i want you to know  
+When your days are getting numbered  
+When your weary to your toe  
+When your days are getting numbered  
+Brother I want you to know  
 
-depart with a tranquil feeling  
-live this moment as you wish  
-depart with a tranquil feeling  
-before you flip off that switch  
+Depart with a tranquil feeling  
+Live this moment as you wish  
+Depart with a tranquil feeling  
+Before you flip off that switch  
 
 
-ill make sure the angels get it  
-to induct you to their shoal  
-brother dont you fret it  
-ill tend to your soul  
+Ill make sure the angels get it  
+To induct you to their shoal  
+Brother don't you fret it  
+Ill tend to your soul  
 
-ill bring it every where with me  
-until its time to hand it off  
-ill bring it every where with me  
+Ill bring it every where with me  
+Until its time to hand it off  
+Ill bring it every where with me  
 making sure its never lost  
 
-itl rest right next to mine  
-i know theres room in there for both  
-theyll be there intertwined  
-ill tend to your soul  
+It'll rest right next to mine  
+I know theres room in there for both  
+They'll be there intertwined  
+Ill tend to your soul  

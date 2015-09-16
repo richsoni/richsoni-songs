@@ -1,28 +1,43 @@
 ---
-title: I Beleivin I Be Leavin
+title: I Beleivin I Be leavin'
 ---
 
-a          e                     a       d  
-i believin, i be leavin in the mornin  
-a            e                  a       e  
-i believin, i be leavin you behind  
-i be leavin, cuz I beleavin you been exploring  
-i be leavin, cuz i beleavin you thinks im blind  
+I believin'', I be leavin'' in the morning  
+I believin'', I be leavin'' you behind  
+I be leavin'', cuz I believin'' you been exploring  
+I be leavin', cuz I believin' you thinks I'm blind  
 
-i believin, i be leavin cuz I feel so doggone lonesome  
-i believin, i be leavin you alone  
-i be leavin, cuz I beleavin you vows a broken  
-i be leavin, and i be leavin to go and roam  
+I believin', I be leavin' cuz I feel so doggone lonesome  
+I believin', I be leavin' you alone  
+I be leavin', cuz I believin' you vows a broken  
+I be leavin', and I be leavin' to go and roam  
 
-d             a               
-sometimes life it gives you lemonOs  
-that you can squeeze in someoones eye  
-f#m                   a  
-so go ahead attack my with your venom  
-f#                       e    e7  
-ill have to go ahead and try  
+Sometimes life it gives you lemons  
+That you can squeeze in someones eye  
+So go ahead attack my with your venom  
+Ill have to go ahead and try  
 
-i believin, i be leavin my darlin  
-i believin, i be leavin her seemin blue  
-i be leavin, cuz I beleavin you just charming  
-to find another man without a clue  
+I believin', I be leavin' my darlin'  
+I believin', I be leavin' her seemin' blue  
+I be leavin', cuz I believin' you just charming  
+To find another man without a clue  
+
+---
+
+### Chords
+
+```
+A          e                     a       d  
+I believin'', I be leavin'' in the morning  
+A            e                  a       e  
+I believin'', I be leavin'' you behind  
+
+
+D             a               
+Sometimes life it gives you lemons  
+That you can squeeze in someones eye  
+F#m                   a  
+So go ahead attack my with your venom  
+F#                       e    e7  
+Ill have to go ahead and try  
+```

@@ -2,32 +2,32 @@
 title: Sarah Ruth
 ---
 
-sarah ruth, you snap those beans ill snap yo bone  
-sarah ruth, man id be better off alone  
-i smell like burbon, well you smell like sermon  
-sarah ruth  
+Sarah Ruth, you snap those beans ill snap yo bone  
+Sarah Ruth, man id be better off alone  
+I smell like Bourbon, well you smell like sermon  
+Sarah Ruth  
 
-sarah ruth, i was broken down the highway  
-sarah ruth, next thing you know we gettin married  
-hates my tattoos, aint that what you are  
-sarah ruth  
+Sarah Ruth, i was broken down the highway  
+Sarah Ruth, next thing you know we gettin' married  
+Hates my tattoos, aint that what you are  
+Sarah Ruth  
 
-sarah ruth, i was on the field on morning  
-sarah ruth, i crashed my tractor without warning  
-you where on my mind, i coulda went blind  
-sarah ruth  
+Sarah Ruth, i was on the field on morning  
+Sarah Ruth, i crashed my tractor without warning  
+You where on my mind, i coulda went blind  
+Sarah Ruth  
 
-sarah ruth, i didnt realize I was already blind  
-sarah ruth, now i left all my mistakes behind  
-i found the lord, the one you adore  
-sarah ruth  
+Sarah Ruth, i didn't realize I was already blind  
+Sarah Ruth, now i left all my mistakes behind  
+I found the lord, the one you adore  
+Sarah Ruth  
 
-sarah ruth, dont you see i did this for you  
-sarah ruth, i proudly wear this big tattoo  
-you think its profane, you think lewd  
-sarah ruth  
+Sarah Ruth, don't you see i did this for you  
+Sarah Ruth, i proudly wear this big tattoo  
+You think its profane, you think lewd  
+Sarah Ruth  
 
-sarah ruth, now i sit outside our home  
-sarah ruth, with a bloody face cold as a stone  
-beat me with a broom and sent me on  
-sarah ruth  
+Sarah Ruth, now i sit outside our home  
+Sarah Ruth, with a bloody face cold as a stone  
+Beat me with a broom and sent me on  
+Sarah Ruth  

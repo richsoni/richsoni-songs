@@ -2,40 +2,40 @@
 title: One Toe Out The Grave
 ---
 
-hard aint nothin mama  
-when you done what i done  
-see i sold my heart, just to keep my gun  
+Hard aint nothin'' mama  
+When you done what i done  
+See i sold my heart, just to keep my gun  
 
-hard aint nothin sister  
-when youve seen what ive seen  
-ive seen myself corrupt poor people in this world that  
-used to call themselves clean  
+Hard aint nothin' sister  
+When you've seen what I've seen  
+I've seen myself corrupt poor people in this world that  
+Used to call themselves clean  
 
-dont go thinkin there aint nothin  
-there aint nothin left to save  
-cause ive still got at least one  
-wigglin toe out of the grave  
+Don't go thinkin' there aint nothin'  
+There aint nothin' left to save  
+Cause I've still got at least one  
+Wigglin' toe out of the grave  
 
-hard aint nothin brother  
-when you heard what I heard  
-midnight banshee cryin terror  
-cause of some trouble that i stirred  
+Hard aint nothin' brother  
+When you heard what I heard  
+Midnight banshee cryin' terror  
+Cause of some trouble that i stirred  
 
-this place could blow at any second  
-and there aint no second chance  
-no whatter what you do or try, its sorta out of all our hands  
+This place could blow at any second  
+And there aint no second chance  
+No matter what you do or try, its sorta out of all our hands  
 
-dont go thinkin there aint nothin  
-there aint nothin left to save  
-cause ive still got at least one  
-wigglin toe out of the grave  
+Don't go thinkin' there aint nothin'  
+There aint nothin' left to save  
+Cause I've still got at least one  
+Wigglin' toe out of the grave  
 
-hard aint nothin mama  
-hard aint nothin sister  
-hard aint nothin brother  
-hard aint nothin no more  
+Hard aint nothin' mama  
+Hard aint nothin' sister  
+Hard aint nothin' brother  
+Hard aint nothin' no more  
 
-dont go thinkin there aint nothin  
-there aint nothin left to save  
-cause ive still got at least one  
-wigglin toe out of the grave  
+Dont' go thinkin' there aint nothin'  
+There aint nothin' left to save  
+Cause I've still got at least one  
+Wigglin' toe out of the grave  

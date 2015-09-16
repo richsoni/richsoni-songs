@@ -3,32 +3,32 @@ title: All I Need
 ---
 
 I just cant wait for the evening  
-for you and I to watch some TV  
-I know youll make some popcorn  
-and snuggle up next to me  
+For you and I to watch some TV  
+I know you'll  make some popcorn  
+And snuggle up next to me  
 
 Well I just cant wait for the weekend  
 I just cant wait for two days with you  
-maybe we will sleep late  
-maybe we will make pancakes and bacon too  
+Maybe we will sleep late  
+Maybe we will make pancakes and bacon too  
 
-Uh huh, ok that is all i need to get through the day  
+Uh huh, ok that is all I need to get through the day  
 
 I just cant wait for vacation  
-to explore a foreign land  
-we will take lots of pictures  
-and walk around holding hands  
+To explore a foreign land  
+We will take lots of pictures  
+And walk around holding hands  
 
 Well I just cant wait for the summer  
 To see the sunshine on your face  
-we can lay back one the beach  
-and listen to each other and the waves  
+We can lay back one the beach  
+And listen to each other and the waves  
 
-Uh huh, ok that is all i need to get through the day  
+Uh huh, ok that is all I need to get through the day  
 
 I just cant wait to retire  
-and spend each day with you  
-maybe well learn to play tennis  
-and teach our grandkids to tie their shoes  
+And spend each day with you  
+Maybe well learn to play tennis  
+And teach our grandkids to tie their shoes  
 
-Uh huh, ok that is all i need to get through the day  
+Uh huh, ok that is all I need to get through the day  

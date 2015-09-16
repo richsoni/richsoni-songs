@@ -2,48 +2,48 @@
 title: Thats What I Call Love
 ---
 
-when the eyes see their match  
-and the lips beg to attach  
-you sweet and forget, the treat  
-of the fire  
+When the eyes see their match  
+And the lips beg to attach  
+You sweet and forget, the treat  
+Of the fire  
 
 And your home all alone  
-with your ear glued to the phone  
-oh babe  
-thats what i call love  
+With your ear glued to the phone  
+Oh babe  
+Thats what i call love  
 
 When everything you used to hate  
-suddenly lost all of its weight  
-babe, i think i know whats going on with that thing pumpingbeyween your lungs   
+Suddenly lost all of its weight  
+Babe, i think i know whats going on with that thing pumping between your lungs   
 
 You see their name written in the clouds  
-and their masquerader in the crowds  
-oh babe,  
-thats what i call love  
+And their masquerader in the crowds  
+Oh babe,  
+Thats what i call love  
 
 When you know that all the stars,  
 Saturn Neptune and mars  
-couldn't hold all the happiness you feel  
+Couldn't hold all the happiness you feel  
 
 And, Zeus' Aphrodite would say  
-your bond is majestic and mighty  
-oh babe,  
-thats what i call love  
+Your bond is majestic and mighty  
+Oh babe,  
+Thats what i call love  
 
 Eclipsing sun and moon  
-clock hands at noon  
-seem askew when compared to you two together  
+Clock hands at noon  
+Seem askew when compared to you two together  
 
 You will lick each others wounds  
-make sure each others strings are tuned  
-oh babe,  
-thats what i call love  
+Make sure each others strings are tuned  
+Oh babe,  
+Thats what i call love  
 
 When you'd trade all 8 of your pawns  
-for that single queen to lean on  
-valiantly facing 16 foes alone, together  
+For that single queen to lean on  
+Valiantly facing 16 foes alone, together  
 
 Through the ups and the downs  
-wearing straw hats or crowns  
-thats what I call love  
+Wearing straw hats or crowns  
+Thats what I call love  
 

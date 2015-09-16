@@ -2,30 +2,30 @@
 title: Railroad Train
 ---
 
-well, I always sit at the top of the rail road train  
-sittin down low just aint the same, lord  
-sittin down low just aint the same  
+Well, I always sit at the top of the rail road train  
+Sittin' down low just aint the same, lord  
+Sittin' down low just aint the same  
 
-I sit a-facin backward with the window by my side  
-starin at the fat words on the billboard signs  
+I sit a-facing backward with the window by my side  
+Starin' at the fat words on the billboard signs  
 
-i dont think theres a better way, no lord  
-there aint no better way  
+I don't think theres a better way, no lord  
+There aint no better way  
 
-well, I always sit at the top of the rail road train  
-sittin down low would drive me insane  
+Well, I always sit at the top of the rail road train  
+Sittin' down low would drive me insane  
 
-I look into the citys as we stop at each  
-see the towns where teachers teach and the priests preach  
+I look into the cities as we stop at each  
+See the towns where teachers teach and the priests preach  
 
-i dont think theres a better way, no lord  
-there aint no better way  
+I don't think theres a better way, no lord  
+There aint no better way  
 
-well, I always sit at the top of the rail road train  
-if all the seats are gone ill stand my friend  
+Well, I always sit at the top of the rail road train  
+If all the seats are gone ill stand my friend  
 
-lookin in the woods as we go between towns  
-watchin rabbits, and the deer run all around  
+Lookin' in the woods as we go between towns  
+Watchin' rabbits, and the deer run all around  
 
-i dont think theres a better way, no lord  
-there aint no better way  
+I don't think theres a better way, no lord  
+There aint no better way  

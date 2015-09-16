@@ -1,31 +1,31 @@
----  
+---
 title: As Hard As I Fell
----  
+---
 
-in the beginning, time took a pause  
-just faces grinning, apathetic to flaws  
-but the clock struck its bell  
-and upon the 8th day  
-as slow as they fell  
-sas slow as they rolled away  
+In the beginning, time took a pause  
+Just faces grinning, apathetic to flaws  
+But the clock struck its bell  
+And upon the 8th day  
+As slow as they fell  
+'Sas slow as they rolled away  
 
-she gave it another try, for old times sake  
-she slipped out passed the guy, without making him wake  
-it started so well  
-when they she met him at the cafe  
-but as hard as she fell  
-sas hard as she rolled away  
+She gave it another try, for old times sake  
+She slipped out passed the guy, without makin' him wake  
+It started so well  
+When they she met him at the café  
+But as hard as she fell  
+'Sas hard as she rolled away  
 
-it came up real slow, with a warm feeling inside  
-he felt it grow, like the rise of the tide  
-hes losing the swell  
-and gets annoyed by the sway  
-as slow as he fell  
-is as slow as he'll roll away  
+It came up real slow, with a warm feeling inside  
+He felt it grow, like the rise of the tide  
+Hes losing the swell  
+And gets annoyed by the sway  
+As slow as he fell  
+Is as slow as he'll roll away  
 
-now ive learned my lesson, ive been burned several times  
-its no longer depressing, its the cost of tossing the dice  
-dont act misconstrued  
-when I got nothin to say  
-as hard as I fall for you  
-is as hard as ill roll away  
+Now I've learned my lesson, I've been burned several times  
+Its no longer depressing, its the cost of tossing the dice  
+Don't act misconstrued  
+When I got nothin' to say  
+As hard as I fall for you  
+Is as hard as ill roll away  

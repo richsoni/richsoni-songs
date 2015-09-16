@@ -2,22 +2,22 @@
 title: Man Of Constant Sorrow
 ---
 
-i am a man of constant sorrow  
-ive seen trouble all my days  
-ill say goodbye to old towaco  
-where i was born and partly raised  
+I am a man of constant sorrow  
+I've seen trouble all my days  
+I'll say goodbye to old Towaco  
+Where I was born and partly raised  
 
-through this open world im bound and shambled  
-stuck in a corporate ladder game  
-im about to ride that morning railroad  
-perhaps ill die upon that train  
+Through this open world I'm bound and shambled  
+Stuck in a corporate ladder game  
+I'm about to ride that morning railroad  
+Perhaps I'll die upon that train  
 
-they say my jobs in danger  
-if i dont work some more  
-but heres one promise too ya  
-5pm and im out the door  
+They say my jobs in danger  
+If i don't work some more  
+But heres one promise too ya  
+5pm and I'm out the door  
 
-im going back to old towaco  
-the place i started from  
-if i knowed how bad theyd treat me  
-babe i never woulda come  
+I'm going back to old Towaco  
+The place I started from  
+If I knowed how bad they'd treat me  
+Babe, I never woulda come  

@@ -2,41 +2,41 @@
 title: Stormy Window
 ---
 
-when you slammed the door  
-and left me all alone  
-kneeling on the floor  
-i couldnt help but moan  
+When you slammed the door  
+And left me all alone  
+Kneeling on the floor  
+I couldn't help but moan  
 
-since youve been gone  
-ive been waitin  
+Since you've been gone  
+Ive been waitin'  
 I want you to know  
-my wrist is restin  
-against a stormy window  
+My wrist is restin'  
+Against a stormy window  
 
-you really shook me up  
-nothin seems the same  
-ive gut a tangle of guts  
-with a sinkin pain  
+You really shook me up  
+Nothin' seems the same  
+Ive gut a tangle of guts  
+With a sinkin' pain  
 
-you left me stranded  
-shakin, tired  
-bitter, weary, and low  
-ive been fearin the world  
-outside the stormy window  
+You left me stranded  
+Shakin', tired  
+Bitter, weary, and low  
+Ive been fearin' the world  
+Outside the stormy window  
 
-baby, darlin, honey, dear  
-i want you back with me here  
-birds a chirpin, sunshine a smilin  
-breezes blowin but im stuck a cryin  
-pushin my palms  
-against the stormy window  
+Baby, darlin', honey, dear  
+I want you back with me here  
+Birds a chirpin', sunshine a smilin'  
+Breezes blowin' but I'm stuck a cryin'  
+Pushin' my palms  
+Against the stormy window  
 
-i know your gone for good  
-its settled into my mind  
-still the crack in my heart  
-is pounding colder than ice  
+I know your gone for good  
+Its settled into my mind  
+Still the crack in my heart  
+Is pounding colder than ice  
 
-ive gone crazy, ive gone nuts  
-why cant i just start a-hatin your guts  
-im bangin my head  
-on a stormy window  
+Ive gone crazy, I've gone nuts  
+Why cant i just start a-hatin' your guts  
+I'm bangin' my head  
+On a stormy window  

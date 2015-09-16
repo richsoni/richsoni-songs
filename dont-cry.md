@@ -1,35 +1,29 @@
 ---
-title: Dont Cry
+title: Don't Cry
 ---
 
-dont cry  
-dont cry  
+Don't cry, Don't cry  
+Wipe away your tears cuz its a real good year to be alive  
 
-wipe away your tears cuz its a real good year to be alive  
+Its alright, Its alright  
+You'll wake up in the morning and forget all about tonight  
 
-its alright  
-its alright  
+She does this every time and we don't really want to hear her wine  
+She comes she drinks she laughs she cries she calls a cab and says goodnight  
+And we don't want her to ruin our night  
 
-youll wake up in the morning and forget all about tonight  
+Alright, Alright  
+You'll wake up in the morning and forget all about tonight  
 
-she does this everytime and we dont really want to hear her wine  
-she comes she drinks she laughs she cries she calls a cab and says goodnight  
-and we dont want her to ruin our night  
+You do this every time and we don't really want to hear you wine  
+You come you drink you laugh you cry you call a cab and say goodnight  
+And we don't want you to ruin our night  
 
-alright  
-alright  
+Shoe be do wap baa  
+Shoe be do wap baa baa  
 
-youll wake up in the morning and forget all about tonight  
+Shoe be do wap baa  
+Shoe be do wap baa baa  
 
-you do this everytime and we dont really want to hear you wine  
-you come you drink you laugh you cry you call a cab and say goodnight  
-and we dont want you to ruin our night  
-
-shoe be do wap baa  
-shoe be do wap baa baa  
-
-shoe be do wap baa  
-shoe be do wap baa baa  
-
-shoe be do wap baa  
-shoe be do wap baa baa  
+Shoe be do wap baa  
+Shoe be do wap baa baa  

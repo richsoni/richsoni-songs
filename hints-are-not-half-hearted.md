@@ -2,38 +2,56 @@
 title: Hints Are Not Half Hearted
 ---
 
-c#m                         g#  
-well, i think ill call you late march snow  
-f#m                       e  
-because i want you to leave but you just wont go  
-g#                     c#m  
-do you really need me to say it?  
-g#              f#m      b  
-why do you have to delay it?  
-e       
+### Lyrics
 
-well, dont you realize that im sick of the cold  
-and dreaming of heat is really getting old  
-cant you just take the hint?  
-do you need it in print?  
+Well, I think ill call you late march snow  
+Because I want you to leave but you just wont go  
+Do you really need me to say it?  
+Why do you have to delay it?  
 
-e     f#m    b  
-please baby its time for you to go  
-please baby you have reached the end of the show  
+Well, don't you realize that I'm sick of the cold  
+And dreaming of heat is really getting old  
+Cant you just take the hint?  
+Do you need it in print?  
 
-well it was fun to to ride my sleigh  
-but now im tired and i dont want to play  
-wont you just leave me alone?  
-cant you just throw me a bone?  
+Please baby its time for you to go  
+Please baby you have reached the end of the show  
 
-have you guzzled down a rum barrel of coffee  
-are you on some kindof pills, because tonight you seem oftly  
-gee your throat must be sore  
-do you need me to show you the door?  
-i have nothing to say anymore  
+Well it was fun to to ride my sleigh  
+But now I'm tired and I don't want to play  
+Wont you just leave me alone?  
+Cant you just throw me a bone?  
 
-(whistle)  
+Have you guzzled down a rum barrel of coffee  
+Are you on some kind of pills, because tonight you seem oftly  
+Gee your throat must be sore  
+Do you need me to show you the door?  
+I have nothing to say anymore  
 
-e     f#m    b  
-please baby its time for you to go  
-please baby you have reached the end of the show  
+Please baby its time for you to go  
+Please baby you have reached the end of the show  
+
+---
+
+### Chords
+
+```
+C#m                         g#  
+Well, I think ill call you late march snow  
+F#m                       e  
+Because I want you to leave but you just wont go  
+G#                     c#m  
+Do you really need me to say it?  
+G#              f#m      b  
+Why do you have to delay it?  
+E       
+
+Well, don't you realize that I'm sick of the cold  
+And dreaming of heat is really getting old  
+Cant you just take the hint?  
+Do you need it in print?  
+
+E     f#m    b  
+Please baby its time for you to go  
+Please baby you have reached the end of the show  
+```
