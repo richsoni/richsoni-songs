@@ -1,6 +1,6 @@
 ---
 title: Wander With Me
-soundcloud: soundcloud.com/richsoni/wander-with-me
+soundcloud: https://soundcloud.com/richsoni/wander-with-me
 ---
 
 I cant tell you where where going  
