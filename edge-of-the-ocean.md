@@ -2,6 +2,8 @@
 title: Edge Of The Ocean
 ---
 
+*Credit Bob Dylan/Rich Soni*
+
 Are you here upside down  
 Well, we're living on the edge of the ocean  
 With the mocking rumble ready to drown  

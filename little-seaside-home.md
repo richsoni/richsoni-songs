@@ -2,6 +2,8 @@
 title: Little Seaside Home
 ---
 
+*Credit: Trad/Rich Soni*
+
 When I bought that house and ship, I was young and full of zip,  
  left my parents, and my friends in old Bayonne.  
 And so I made the race, and i stacked me out a place  

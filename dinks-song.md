@@ -2,6 +2,8 @@
 title: Dinks Song
 ---
 
+*Credit: trad/Rich Soni*
+
 Once I had wings like Noah's dove  
 I flew up the river looked for a love  
 

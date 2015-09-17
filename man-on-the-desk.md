@@ -2,6 +2,8 @@
 title: Man On The Desk
 ---
 
+*Credit: Bob Dylan/Rich Soni*
+
 Ill sing you a song, aint very long  
 Bout an old man who never done wrong  
 How he died nobody can say  

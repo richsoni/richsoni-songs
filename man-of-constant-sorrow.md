@@ -2,6 +2,8 @@
 title: Man Of Constant Sorrow
 ---
 
+*Credit: trad/Rich Soni*
+
 I am a man of constant sorrow  
 I've seen trouble all my days  
 I'll say goodbye to old Towaco  
