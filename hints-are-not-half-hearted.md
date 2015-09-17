@@ -1,5 +1,6 @@
 ---
 title: Hints Are Not Half Hearted
+soundcloud: https://soundcloud.com/richsoni/hints-are-not-half-hearted
 ---
 
 ### Lyrics

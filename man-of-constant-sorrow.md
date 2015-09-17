@@ -1,5 +1,6 @@
 ---
 title: Man Of Constant Sorrow
+soundcloud: https://soundcloud.com/richsoni/man-of-constant-sorrow
 ---
 
 *Credit: trad/Rich Soni*

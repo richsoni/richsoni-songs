@@ -1,5 +1,6 @@
 ---
 title: Hocus Focus
+soundcloud: https://soundcloud.com/richsoni/hocus-focus
 ---
 
 When she puts her hocus focus on me  

@@ -1,5 +1,6 @@
 ---
 title: Hey Baby Doll
+soundcloud: https://soundcloud.com/richsoni/hey-baby-doll
 ---
 
 Hey baby doll, how you livin'  

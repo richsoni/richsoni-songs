@@ -1,5 +1,6 @@
 ---
 title: I Beleivin I Be leavin'
+soundcloud: https://soundcloud.com/richsoni/i-believin-i-be-leavin
 ---
 
 I believin'', I be leavin'' in the morning  

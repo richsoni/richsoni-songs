@@ -1,5 +1,6 @@
 ---
 title: Ghost In The Wire
+soundcloud: https://soundcloud.com/richsoni/ghosts-in-the-wire
 ---
 
 Well theres ghosts in the wire, ma  

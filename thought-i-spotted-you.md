@@ -1,5 +1,6 @@
 ---
 title: Thought I Spotted You
+soundcloud: https://soundcloud.com/richsoni/i-thought-i-saw-you-take-1
 ---
 
 Thought I spotted today standing in a crowd  

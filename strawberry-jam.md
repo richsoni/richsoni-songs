@@ -1,5 +1,6 @@
 ---
 title: Strawberry Jam
+soundcloud: https://soundcloud.com/richsoni/strawberry-jam-take-3
 ---
 
 Strawberry jam in my bed  

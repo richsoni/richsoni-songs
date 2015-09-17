@@ -1,5 +1,6 @@
 ---
 title: How Come Sweet Gum
+soundcloud: https://soundcloud.com/richsoni/how-come-sweet-gum
 ---
 
 How come you don't get along with me  

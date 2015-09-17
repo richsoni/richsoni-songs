@@ -1,5 +1,6 @@
 ---
 title: Born To Live
+soundcloud: https://soundcloud.com/richsoni/born-to-live
 ---
 
 Some people was born, to workin' every day  

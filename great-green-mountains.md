@@ -1,5 +1,6 @@
 ---
 title: Green Mountains
+soundcloud: https://soundcloud.com/richsoni/green-mountains-take-2
 ---
 
 Ridin' along the great green mountains  

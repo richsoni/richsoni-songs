@@ -1,5 +1,6 @@
 ---
-title: I Was Jumping Freight Trains Until I Found You
+title: Jumping Freight Trains Until I Found You
+soundcloud: https://soundcloud.com/richsoni/jumping-freight-trains
 ---
 
 I was riding on the ghost line  
