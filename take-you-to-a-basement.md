@@ -6,32 +6,32 @@ soundcloud: https://soundcloud.com/richsoni/take-you-to-a-basement
 
 ### Lyrics
 
-well its 11 oclock on a saturday prowl
-lookin for a  lover with a penetrating smile
-ill keep my hands to myself, gee you feel so nice
+Well its 11 o'clock on a Saturday prowl  
+Lookin' for a  lover with a penetrating smile  
+I'll keep my hands to myself, gee you feel so nice  
 
-Hey, let me take youuuuuuuuuu to a basement
-Youll look so exotic in the neon light
-Babe, youll get a hot pink paper bracelet
-itl Bring out the blue in your eyes tonight
+Hey, let me take you to a basement  
+You'll look so exotic in the neon light  
+Babe, you'll get a hot pink paper bracelet  
+It'll Bring out the blue in your eyes tonight  
 
-got your hip tattoo of an upside down cross
-diggin the way your riding on the evening bus
-come along if you trust me, but i wont ask you twice
+Got your hip tattoo of an upside down cross  
+Diggin' the way your riding on the evening bus  
+Come along if you trust me, but I wont ask you twice  
 
-Hey, let me take youuuuuuuuuuo a basement
-Youll look so exotic in the neon light
-Babe, youll get a hot pink paper bracelet
-itl Bring out the blue in your eyes tonight
+Hey, let me take you to a basement  
+You'll look so exotic in the neon light  
+Babe, you'll get a hot pink paper bracelet  
+It'll Bring out the blue in your eyes tonight  
 
-we could pound back a few, i know itl warm us up
-forget that new movie, forget that expensive night club
-i know a place itl be just alright, but if you dont wanna come i wont put up i fight
+We could pound back a few, I know it'll warm us up  
+Forget that new movie, forget that expensive night club  
+I know a place it'll be just alright, but if you don't wanna come I wont put up a fight  
 
-Hey, let me take youuuuuuuuuu to a basement
-Youll look so exotic in the neon light
-Babe, youll get a hot pink paper bracelet
-itl Bring out the blue in your eyes tonight
+Hey, let me take you to a basement  
+You'll look so exotic in the neon light  
+Babe, you'll get a hot pink paper bracelet  
+It'll Bring out the blue in your eyes tonight  
 
 ---
 
