@@ -1,6 +1,7 @@
 ---
 title: Take You To A Basement
 created-at: 09/18/2015
+soundcloud: https://soundcloud.com/richsoni/take-you-to-a-basement
 ---
 
 ### Lyrics
