@@ -4,55 +4,54 @@ created-at: 10-15-2015
 ---
 
 Jump a mojito baby, put a paper plate on your head
-your a sweet shadow shirt lady, id like to see you when you shed
-dont you break that shelaile mama, this aint its first award show do you dig?
-thats not a skirt your wearin, thats not a skirt its a wig
+Your a sweet shadow shirt lady, I'd like to see you when you shed
+Don't you break that shillelagh mama, this aint its first award show do you dig?
+That's not a skirt your wearin', that's not a skirt it's a wig
 
-well i was bored before it started
+Well I was bored before it started
 I was bored when it begun
-i was bored when we departed
-honey wheres the tommy gun
+I was bored when we departed
+Honey, where's the tommy gun
 
+I'm certain about your barista, I am certain it can walk
+I've seen it lickin lightning bulbs, I've seen it breaking lollipops
+I'm waxing and whining for you, I'm whining with my wine
+I'm scared to meet your poodle, I'm scared of overtime
 
-Im certain about your barista, I am certain it can walk
-Ive seen it lickin lightning bulbs, ive seen it breaking lollipops
-Im waxing and whining for you, Im whining with my wine
-Im scared to meet your poodle, Im scared of overtime
-
-well i was bored before it started
+Well I was bored before it started
 I was bored when it begun
-i was bored when we departed
-honey wheres the tommy gun
+I was bored when we departed
+Honey, where's the tommy gun
 
-the gates have been left reading, the moat has been on fire
-the sky above is bleeding, its leaking on the open wire
-my skin is screaming soda, fizzle for me twice
-reach behind your shoulder, put that ring on some peaty ice
+The gates have been left reading, the moat has been on fire
+The sky above is bleeding, its leaking on the open wire
+My skin is screaming soda, fizzle for me twice
+Reach behind your shoulder, put that ring on some peaty ice
 
-well i was bored before it started
+Well I was bored before it started
 I was bored when it begun
-i was bored when we departed
-honey wheres the tommy gun
+I was bored when we departed
+Honey, where's the tommy gun
 
-walk with waldo, run with ramapo
-bulk with bravo, piss with pistacio
+Walk with Waldo, run with Ramapo
+Bulk with Bravo, piss with Pistachio
 im stitching up the gutter, its fence is barely barbed
 im blowin with the barley, im wading with the guard
 
-well i was bored before it started
+Well I was bored before it started
 I was bored when it begun
-i was bored when we departed
-honey wheres the tommy gun
+I was bored when we departed
+Honey, where's the tommy gun
 
 whos that other bottle, whos that other purse
 ill make their chester waddle, ill clip them in with a hearse
 im melting mandarin oranges, and pouring them in a bath
 im breating pollen honey, arent you glad i did the math
 
-well i was bored before it started
+Well I was bored before it started
 I was bored when it begun
-i was bored when we departed
-honey wheres the tommy gun
+I was bored when we departed
+Honey, where's the tommy gun
 
 ask me to the grocers mothers, ive been there several months
 his sisters and his brothers, are all a coupla runts
@@ -62,7 +61,7 @@ ive found that if I wear it, it makes my nostrils bright
 grow up you little angel, id like to see you snore
 while wearing bark laced overcoats, your dirty little chore
 
-well i was bored before it started
+Well I was bored before it started
 I was bored when it begun
-i was bored when we departed
-honey wheres the tommy gun
+I was bored when we departed
+Honey, where's the tommy gun
