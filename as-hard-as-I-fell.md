@@ -13,11 +13,7 @@ As slow as they fell
 
 as slow as anyone falls, is as slow as they roll away
 well, damaged hearts take a hefty toll
-that everyone has to pay
-love's path it aint a circle
-when you quit, you must turn around
-as long as it took to climb up
-is as long as it takes to climb down
+its best to just accept it and hope to learn from it some day
 
 She gave it another try, for old times sake  
 She slipped out passed the guy, without makin' him wake  
@@ -33,14 +29,9 @@ And gets annoyed by the sway
 As slow as he fell  
 Is as slow as he'll roll away  
 
-as hard as anybody falls, is as hard as they roll away
+as slow as anyone falls, is as slow as they roll away
 well, damaged hearts take a hefty toll
-that everyone has to pay
-love's path it aint a circle
-when you quit, you must turn around
-as long as it took to climb up
-is as long as it takes to climb down
-
+its best to just accept it and hope to learn from it some day
 
 Now I've learned my lesson, I've been burned several times  
 Its no longer depressing, its the cost of tossing the dice  
@@ -49,14 +40,9 @@ When I got nothin' to say
 As hard as I fall for you  
 Is as hard as ill roll away  
 
-as hard as anybody falls, is as hard as they will have to roll away
-as hard as anybody falls, is as hard as they roll away
+as slow as anyone falls, is as slow as they roll away
 well, damaged hearts take a hefty toll
-that everyone has to pay
-love's path it aint a circle
-when you quit, you must turn around
-as long as it took to climb up
-is as long as it takes to climb down
+its best to just accept it and hope to learn from it some day
 
 ```
 c                        f
