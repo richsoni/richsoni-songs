@@ -3,7 +3,7 @@ title: Since The Last Blood Moon
 soundcloud: https://soundcloud.com/richsoni/since-the-last-blood-moon
 ---
 
-Got your mojo bag  
+Get your mojo bag  
 With a rabbits foot  
 Rattle snack rattle  
 Bat wing soot  

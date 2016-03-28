@@ -3,6 +3,27 @@ title: Green Mountains
 soundcloud: https://soundcloud.com/richsoni/green-mountains-take-2
 ---
 
+open d capo 4
+
+054000
+x2xxxx
+054000
+xx2xxx
+xx4xxx
+xx2xxx
+054000
+
+x2012x
+x0212x
+054000
+042000
+020000
+x2012x
+x0212x
+xx4xxx
+xx2xxx
+054000
+
 Ridin' along the great green mountains  
 The heart of the Appellation range  
 I know claim the grass could be greener  
@@ -15,10 +36,10 @@ Even if theres frost down below
 
 We could meet up in those mountains  
 Say we go to Bennington town  
-You'll know it by the spike touching the sky there  
-And the mountains in every direction round  
+stand at the top of the monument
+with the mountains in every direction round  
 
-Or, maybe we can meet up in Rutland  
+Or, maybe we can head up to Rutland  
 Where the mountains roll up to the sky  
 We could climb to see the range there  
 Its green no matter how far you stretch your eye  

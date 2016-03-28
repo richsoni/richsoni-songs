@@ -2,6 +2,7 @@
 title: Tumblin' Rock
 soundcloud: https://soundcloud.com/richsoni/tumblin-rock-take-1
 ---
+A F#m A D A F#m A D E
 
 When the lime lite is shining  
 While the king of clubs is dining  

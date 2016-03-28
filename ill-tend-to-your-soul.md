@@ -28,18 +28,17 @@ Live this moment as you wish
 Depart with a tranquil feeling  
 Before you flip off that switch  
 
-
 Ill make sure the angels get it  
 To induct you to their shoal  
 Brother don't you fret it  
 Ill tend to your soul  
 
 Ill bring it every where with me  
-Until its time to hand it off  
-Ill bring it every where with me  
 making sure its never lost  
+Ill bring it every where with me  
+Until its time to hand it off  
 
-It'll rest right next to mine  
-I know theres room in there for both  
-They'll be there intertwined  
-Ill tend to your soul  
+I'll keep it right next to mine  
+I'm sure theres space in there for both  
+They'll both be there intertwined  
+yeah, ill tend to your soul  

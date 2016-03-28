@@ -3,7 +3,7 @@ title: Red Tied Minstrel
 ---
 
 I'm-a red tied minstrel, roamin' from town to town  
-I'm-a red tied minstrel, watch out when around  
+I'm-a red tied minstrel, watch out when im around  
 Uncles hide your nieces, when you hear my sound  
 
 If you see me with your nieces, you gummed up steps ago  
