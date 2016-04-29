@@ -37,4 +37,3 @@ Please standby
 Please standby  
 Well i aint gonna lie  
 Theres a delay so please standby  
-

@@ -8,11 +8,11 @@ i learned yours from the coffee cup that your holdin in your hand
 
 peggy will you ever play with me
 peggy will you ever play with me
-you stick my bubble gum mind come play with me
+you stick my bubble gum in mind come play with me
 
 peggy will you ride the ferris wheel
 peggy will you ride the ferris wheel
-goes nowhere, but the experience is such a thrill
+goes nowhere, but the ride is such a thrill
 
 ---
 
