@@ -3,15 +3,15 @@ ooo..
 
 you ear will hear a dreary sound
 when you boots have found
-themselves in spookytown
-
-every hair on atop your head
-will spring and spead
-to salute the dead
+the path to spookytown
 
 see, there aint no corpses in the ground
 they all walk around
 the streets of spookytown
+
+all the hell hounds, chewin on a crown
+there aint no pound
+in spookytown
 
 all the trains are transylvania bound
 when they zoom out
@@ -26,10 +26,6 @@ in spookytown
 from a tomb the groom
 dug up the rings of egyptian kings
 bling
-
-all the hell hounds, chewin on a crown
-there aint no pound
-in spookytown
 
 the ceremony lead with a frown
 from a bloody hobo clown

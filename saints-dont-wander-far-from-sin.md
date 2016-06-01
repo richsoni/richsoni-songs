@@ -11,27 +11,27 @@ swing over to the dock
 just after two o'clock
 talk with mr. smee about our scheme
 
-so, he hitched a ride back to alba isle
+so, he hitched a ride to alba isle
 but found that place was draggin on his style
 he took a shot of gin, dove in the sea to swim
-cuz saints dont wander far away from sin
+cuz saints dont wander far from sin
 
-pastor peter preaches jesus said forgive
-thats the way he urges each of us to live
+pastor preaches jesus said forgive
+thats the way he urges us to live
 read luke four and twenty times
-dont challenge him on sime-on, simon-peter, paul, or john
+dont challenge him on lines from simon, simon-peter, paul, or john
 
-miss moses had a knack for wrong from right
+miss moses had a knack for wrong and right
 she never fought remorse late in the night
 she always finds disgust, starts a verbal gust
-must someone lust less just sustinance in life
+must someone lust less just sustenance in life
 
-if you take away less angelic than they are
-everyone thats left is quote unquote a star
+without those less angelic than they are
+those left aint quote unquote a star
 then they all would look so dim, and none of them would win
-so, saints dont wander far away from sin
+so, saints dont wander far from sin
 
-see everyone makes commits a little crime
-its human to misconstrue from time to time
-just expect that someone will come and smack you in the shin
-cuz, saints dont wander far away from sin
+see everyone commits a little crime
+human's misconstrue from time to time
+expect someone to grin when they smack you in the shin
+cuz, saints dont wander far from sin

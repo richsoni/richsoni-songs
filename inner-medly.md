@@ -4,16 +4,19 @@ title: Inner Medly
 
 em       am           g      bm
 its just another busy night
-          c                 g
+          c      bm         g
 trying to answer all of the questions in my mind
 
 it gets so discouraging sometimes
 but then again thats what makes its worth while to be alive
 
+g        bm    am
 an inner medly
+        d
 that we hear inside our mind
 yours is yours
 and mine is mine
+an inner medly
 an inner medly
 
 it keeps me guessing all the time
