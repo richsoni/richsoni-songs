@@ -17,16 +17,7 @@ all the news that i see
 lookin a lot like the letters of john
 
 this aint a world
-in the angels biz
-but, it is what it is
-
-theres darkness everywhere
-its even got your neighbors kid
-obody wants to care
-nobody wants to whatd happen if they did
-
-this aint a world
-that needs another destruction wiz
+that the angels kiss
 but, it is what it is
 
 haters gonna hate
@@ -35,10 +26,9 @@ the angel at heavens gate will be
 all like what was it you where fighting for?
 
 this aint a world
-where it should be mine or his
+asking for clenching fists
 but, it is what it is
 
 this aint a world
-prepared for the final quiz
+where it should be mine or his
 but, it is what it is
-

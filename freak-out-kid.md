@@ -1,3 +1,4 @@
+f dm am
 i once had a dark revelation
 at a fire in the woods by a creek
 a stranger that i met started shaking
