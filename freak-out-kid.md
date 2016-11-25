@@ -24,11 +24,6 @@ one of us that was standing by him
 as the doors to the elevator closed up
 he flicked us a menacing grin
 
-the face of my friend was white as a snowman
-he said the kid asked if he believed in the lord
-he was not sure how he answered, but
-the kid said he should think it over again
-
 i ran into the kid three years later
 at a party 200 miles away
 he we talked and acted as if nothing happened

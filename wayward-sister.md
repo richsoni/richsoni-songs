@@ -3,7 +3,7 @@ f# g# c#m
 
 hard luck dont go down easy
 it seizes up your wits
-but, i promise aint sleezy
+but, i promise aint sleazy
 to hack it up to bits
 
 those that leave it up to Nature
@@ -22,7 +22,7 @@ being laughed at by the sheep
 cooking, cleaning, smiling, scheming, breathing
 in a chicken room takes a toll
 youve spent years of daydreaming
-painting your masterpiece in a toilet bowl
+chasing the fox out of its hole
 
 wayward sister, get up off the floor
 wayward sister, step out the door
@@ -42,7 +42,7 @@ wayward sister, step out the door
 
 hard luck doesnt go down easy
 it suffocates your brain
-but, i promise aint sleezy
+but, i promise aint sleazy
 to runaway from all the pain
 
 nestle with us in the forest

@@ -3,10 +3,15 @@ title: Since The Last Blood Moon
 soundcloud: https://soundcloud.com/richsoni/since-the-last-blood-moon
 ---
 
-Get your mojo bag  
+Tweak your mojo bag  
 With a rabbits foot  
 Rattle snack rattle  
 Bat wing soot  
+
+If your lookin' for salvation  
+Don't expect it too soon  
+Ive been toiling and waiting  
+Since the last blood moon  
 
 Got yourself black book  
 Brewed tea, read the leaves  
@@ -19,25 +24,19 @@ Ive been toiling and waiting
 Since the last blood moon  
 
 Prayin' up to Jesus  
-Tiltin' your head tarred the sun  
-When fold up all of your fingers  
-Tightly twisting your thumbs  
+He will never come
+fold up all of your fingers  
+Twist together your thumbs  
 
 If your lookin' for salvation  
 Don't expect it too soon  
 Ive been toiling and waiting  
 Since the last blood moon  
 
-You can furrow a shelter  
-Crawl inside like a mouse  
-Survive getting shucked by a twister  
-Then suffocate under the house  
-
-
 You can kill all the evil  
-But know that more always grows  
-Burn the forest down to a desert  
-But still miss killing the crows  
+But more always grows  
+Burn the forest down
+But spare the crows  
 
 If your lookin' for salvation  
 Don't expect it too soon  

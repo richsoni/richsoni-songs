@@ -1,6 +1,6 @@
 ---
 title: As Hard As I Fell
-composed_at: 07-31-2015
+composed_at: 2015-07-31
 capo: 2
 ---
 

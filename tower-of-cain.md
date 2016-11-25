@@ -16,6 +16,11 @@ i know that it has to be done
 got a ladder, took my gun off of the shelf
 sent a message, saying brother you must come
 
+how long must i wait to meet my doom
+listening to the rain
+watching the lightning in the sky
+but thats life in the tower of cain
+
 some say life is just a brief drop of time
 aim the gun, pull the trigger, smell the spark
 as it cools, all i have left is a sigh

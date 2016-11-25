@@ -13,18 +13,16 @@ all the hell hounds, chewin on a crown
 there aint no pound
 in spookytown
 
-all the trains are transylvania bound
+all the trains are Transylvania bound
 when they zoom out
 of spookytown
-
-ooo..
 
 a black widow's webbing wound
 the brides wedding gown
 in spookytown
 
 from a tomb the groom
-dug up the rings of egyptian kings
+dug up the rings of Egyptian kings
 bling
 
 the ceremony lead with a frown
