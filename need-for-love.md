@@ -1,3 +1,7 @@
+---
+composed_at: 2016-08-12
+---
+
 g em c d
 
 fools bolt like hermit crabs

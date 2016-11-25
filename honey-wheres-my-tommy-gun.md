@@ -1,6 +1,6 @@
 ---
 title: Honey, Where's My Tommy Gun
-composed_at: 10-15-2015
+composed_at: 2015-10-15
 ---
 G#m Cm C#
 

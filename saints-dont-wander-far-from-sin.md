@@ -1,3 +1,7 @@
+---
+composed_at: 2016-04-19
+---
+
 G D G G C G D
 enslaved in killala(caun chill ala) bay
 paddy sheared the sheep and bagged the hay

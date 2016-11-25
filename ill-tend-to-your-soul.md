@@ -1,6 +1,7 @@
 ---
 title: Ill Tend To Your Soul
 soundcloud: https://soundcloud.com/richsoni/tend-to-your-soul
+composed_at: 2015-08-20
 ---
 
 When your clock it stops a-tickin''  

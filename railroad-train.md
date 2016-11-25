@@ -1,6 +1,7 @@
 ---
 title: Railroad Train
 soundcloud: https://soundcloud.com/richsoni/railroad-man-take-4e
+composed_at: 2015-03-07
 ---
 
 Well, I always sit at the top of the rail road train  

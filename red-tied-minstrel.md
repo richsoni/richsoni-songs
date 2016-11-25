@@ -1,5 +1,6 @@
 ---
 title: Red Tied Minstrel
+composed_at: 2015-11-05
 ---
 
 I'm-a red tied minstrel, roamin' from town to town  

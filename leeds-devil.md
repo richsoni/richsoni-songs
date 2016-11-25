@@ -1,3 +1,7 @@
+---
+composed_at: 2016-05-30
+---
+
 Em G C
 
 Siren voice is screaming

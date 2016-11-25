@@ -1,6 +1,7 @@
 ---
 title: Stormy Window
 soundcloud: https://soundcloud.com/richsoni/stormy-window
+composed_at: 2015-08-26
 ---
 
 When you slammed the door  

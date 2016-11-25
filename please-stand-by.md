@@ -1,7 +1,7 @@
 ---
 title: Please Stand By
 soundcloud: https://soundcloud.com/richsoni/please-stand-by-take-1e
-composed_at: 09-04-2014
+composed_at: 2014-09-04
 ---
 
 I made my way down to the love station  

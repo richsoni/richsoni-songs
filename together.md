@@ -1,5 +1,6 @@
 ---
 title: Together
+composed_at: 2011
 ---
 
 Oh my baby, I love her so  

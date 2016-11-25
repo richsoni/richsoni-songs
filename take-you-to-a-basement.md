@@ -1,6 +1,6 @@
 ---
 title: Take You To A Basement
-composed_at: 09/18/2015
+composed_at: 2015-09-18
 soundcloud: https://soundcloud.com/richsoni/take-you-to-a-basement
 ---
 

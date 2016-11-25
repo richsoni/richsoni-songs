@@ -1,6 +1,7 @@
 ---
 title: Thats What I Call Love
 soundcloud: https://soundcloud.com/richsoni/thats-what-i-call-love
+composed_at: 2015-01-02
 ---
 
 When the eyes see their match  

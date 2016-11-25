@@ -1,5 +1,6 @@
 ---
 title: Edge Of The Ocean
+composed_at: 2015-01-23
 ---
 
 *Credit Bob Dylan/Rich Soni*

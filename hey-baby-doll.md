@@ -1,6 +1,7 @@
 ---
 title: Hey Baby Doll
 soundcloud: https://soundcloud.com/richsoni/hey-baby-doll
+composed_at: \< 2015-10-27
 ---
 
 Hey baby doll, how you livin'  

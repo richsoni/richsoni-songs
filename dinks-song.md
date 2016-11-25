@@ -1,6 +1,7 @@
 ---
 title: Dinks Song
 soundcloud: https://soundcloud.com/richsoni/dinks-song-take-1
+composed_at: \< 2015-01-17
 ---
 
 *Credit: trad/Rich Soni*

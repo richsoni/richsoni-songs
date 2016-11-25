@@ -1,3 +1,7 @@
+---
+composed_at: 2016-04-07
+---
+www
 f dm am
 i once had a dark revelation
 at a fire in the woods by a creek

@@ -1,6 +1,7 @@
 ---
 title: Thought I Spotted You
 soundcloud: https://soundcloud.com/richsoni/i-thought-i-saw-you-take-1
+composed_at: 2015-02-15
 ---
 
 Thought I spotted today standing in a crowd  

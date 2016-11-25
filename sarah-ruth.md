@@ -1,6 +1,7 @@
 ---
 title: Sarah Ruth
 soundcloud: https://soundcloud.com/richsoni/sarah-ruth
+composed_at: 2015-09-01
 ---
 
 Sarah Ruth, you snap those beans ill snap yo bone  

@@ -1,6 +1,7 @@
 ---
 title: Ghost In The Wire
 soundcloud: https://soundcloud.com/richsoni/ghosts-in-the-wire
+composed_at: 2013-03-14
 ---
 
 Well theres ghosts in the wire, ma  

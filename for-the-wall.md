@@ -1,3 +1,7 @@
+---
+composed_at: 2016-04-01
+---
+
 baby, im sitting on the back of a bus
 theres a pregnant guy that smells like peanuts
 i have to say i hate his guts
