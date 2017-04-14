@@ -14,6 +14,11 @@ the silver tongues of mermaids sing
 conned the goldsmiths wives out of rings
 to play on their need for love
 
+they could name, any price
+and I would pay it twice
+just for a slice
+we all need it, we all need it
+
 swift feet of time walking slow
 at the speed of two people who know
 there aint no more steps in which they must go

@@ -8,15 +8,15 @@ and now you find yourself crawling out your window
 when its time to go to bed
 oh shake shake it honey wont you shake yourself down the ledge
 
-You got a driver and hes got some cash to spend
+You got a driver hes got cash to spend
 he says he loves you but you dont even pretend
 he takes to a disco and you go lookin for a friend
 shake shake it honey looks like hes home alone again
 
 a teacher caught you when your where skippin class
 to head downtown to work your sass
-but you asked him to come with you and he wrote you up a pass
-shake shake it honey shake it past the grass
+but you said he could come with you if he wrote you up a pass
+shake shake it honey shake it down the grass
 
 well the people whisper all around the town
 how you wear the moonlight as your evening gown
