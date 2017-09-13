@@ -19,9 +19,9 @@ Super User DO, AT&T
 Now hes any man he wants to be
 
 FBI tapping Condor's wire
-But, Condor was watching from the briar
-Has AT&T turn around the tap
-Now the fox is in the Condor's trap
+But, Condor could smell the distant fire
+Has AT&T reverse the tap
+Now the Fox is in the Condor's trap
 
 Fly, like a bird in the sky
 Running from the FBI
@@ -36,7 +36,7 @@ Left a box of donuts in the fridge
 'My kung fu is stronger' Shimo heard
 Tracking down the man who said the word
 Got a scent and tipped the FBI
-Condors in the corner of their eye
+Now the Condor is in the Fox's eye
 
 Fly, like a bird in the sky
 Running from the FBI

@@ -1,25 +1,27 @@
-I aint the guy who rides inside of Noah's ark
-but, I aint the guy who cries we must beware
-well God was lookin' at me
-when he raised up the deep blue sea
-but, Molly do it look like I care?
+---
+composed_at: 08/02
+title: Molly, Do It Look Like I Care
+---
 
-It was said I'd be dead and gone
-by the time big red gets to hear this song
-lets us pray that the scriptures wrong
-in this very specific case
+I aint the guy who rides inside of Noah's Ark
+I aint the guy who cries you must beware
+God was looking at me
+When he rose the great blues sea
+But, Molly do it look like I care?
 
-I was riding on my unicorn
-when buckets of rain started pouring
-while in the sky a dove was soaring
-saying soon youll know your place
+Looking through my second story window
+Backwater rising from below
+Bridges floating in the distance
+Stuck here with no other place to go
 
-I aint the guy who rides inside of Noah's ark
-but, I aint the guy who cries we must beware
-well God was lookin' at me
-when he raised up the deep blue sea
-but, Molly do it look like I care?
+I aint the guy who rides inside of Noah's Ark
+I aint the guy who cries you must beware
+God was looking at me
+When he rose the great blues sea
+But, Molly do it look like I care?
 
-I knew I had no time to loose
-so I left behind my running shoes
+Brother Noah said he couldn't find me
+Said i must have wandered off
+But i heard him tip his toes behind me
+Close the ship, and set it off
 
