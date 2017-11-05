@@ -1,4 +1,4 @@
-Benny lost his wife
+Benny bet his wife
 In a game of Texas Stud
 
 He had no more to loose
@@ -28,12 +28,13 @@ Straight in that suckers eye
 His love was in the garden
 She rigged that deck of cards
 She knew that he would bargain
-With the love that chained her heart
+With their love which chained her heart
 
 Standing in the square
 Outside the Dog Saloon
-Benny's got his gun
-And Mudd can see his tomb
+Shotgun in his hand
+He sent em' to their tomb
+
 
 In his yard there was a garden
 His true love she was there
